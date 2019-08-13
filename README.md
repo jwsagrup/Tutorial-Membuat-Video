@@ -1,0 +1,2 @@
+# Tutorial-Membuat-Video
+Pembuat Film Gratis Video Editor adalah alat yang sempurna untuk siapa saja yang menginginkan cara yang murah dan sederhana untuk mengedit video. Perangkat lunak ini dilengkapi dengan semua fungsi dasar yang Anda perlukan untuk memulai pemotongan, penyambungan dan pengubahan klip video agar sesuai dengan tujuan Anda. Karena gratis, ini adalah titik awal yang sempurna untuk mengedit video.
